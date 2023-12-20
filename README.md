@@ -1,8 +1,2 @@
-- 👋 Hi, I’m @Exotikcheatt
-- 👀 I’m interested in c++ cheat...
-- 🌱 I’m currently learning c++ ...
-
-<!---
-Exotikcheatt/Exotikcheatt is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+you are looking to buy a private apex project I have what you need, if you don't have money go to another ad
+I will not work on the project until I have 50%
