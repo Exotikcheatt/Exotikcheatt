@@ -1,6 +1,4 @@
-you are looking to buy a private apex project I have what you need
-## ⚠️ -  NO I DO NOT SELL ANY SOURCE -> if you're rich we can talk otherwise don't waste your time
-## ⚠️ -  Only .exe with Key System ( Your own informations + Key loader Protection + BUILD IN SPOOFER ) I take care of the update every time Apex Legends is updated.
-## 💵 - Payments : 50% Now and the other 50% in 2 weeks otherwise I wouldn't accept and if you no longer give any sign of life, you are the worst, you will lose your 50% and your cheat will not be updated in any way at the next update apex update this is why I do not include the auto update when I have the 100% exact amount I would add the auto update
-## 💵 - if you think about paying that $100,00 you can move on to another AD
-## ⚠️ - ONLY APEX I CAN MAKE OTHER GAMES IF YOU ALREADY HAVE THE SOURCE UPDATE BECAUSE I DO NOT DO ANY UPDATE , ONLY CHANGE DRIVER METHOD + ADDING SYSTEM KEY + PROTECTION + BUILDINSPOOFER ( I SEND YOU AFTER ONLY .EXE ) I DON'T DO FORTNITE BECAUSE I DON'T OWN CR3 EAC
+you are looking to buy a private EAC / BE Injector I have what you need
+## 💵 - Payment is made / per month
+## ⚠️ -  NO I DO NOT SELL ANY SOURCE
+## ⚠️ -  Only .exe with Key System ( with my information + Key loader Protection )
