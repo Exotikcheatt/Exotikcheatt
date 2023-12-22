@@ -3,5 +3,5 @@
 ## ⚠️ -  NO I DO NOT SELL ANY SOURCE
 ## ⚠️ -  Only .exe with Key System ( with my information + Protection AntiVM , AntiDebug , AntiAttach , AntiDump , Obfuscator , VMProtectSDK64 , SecureEngineSDK64 , Blacklist Program + Ban key loader , Driver Detected , Random Process , Random Title )
 ## ⚠️ -   I give you the number of keys you want and when the keys are sold I will give you more
-## 🚨 -   Is it possible to test it ? : YES NO PROBLEM
+## 🚨 -   Is it possible to test it ? : YES NO PROBLEM if you have your internal update cheat
 ## 🚨 -   if you do not pay, your access will simply be blocked
